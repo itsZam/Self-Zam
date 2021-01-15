@@ -1,6 +1,6 @@
 # Self-Zam
-LOCK 
+LOCK xixiixi
 
-# GW
-[MyNumber](wa.me/6281295037142)
-[MyNumber2](wa.me/994405570419)
+# HOAMMM
+- [MyNumber](wa.me/6281295037142)
+- [MyNumber2](wa.me/994405570419)
